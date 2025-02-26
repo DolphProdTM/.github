@@ -36,7 +36,7 @@ Desde aventuras temáticas hasta competiciones de alta adrenalina, nuestros even
 
 ## 🎉 Únete a Nuestra Comunidad  
 ¡Somos más que un estudio, somos una familia de creadores y jugadores apasionados! Únete a nosotros en:  
-- 💬 **[Discord](https://discord.gg/hK9RQ8xSUW)**  
+- 💬 **[Discord](https://discord.gg/qKvB4jsbqx)**  
 - 🖤 **[X](https://x.com/DolphProdTM)**  
 - ⏩ **[YouTube](https://youtube.com/@DolphProdTM)**  
 
